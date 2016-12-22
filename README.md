@@ -1,2 +1,0 @@
-# myProjewct
-hhhhhhhh
